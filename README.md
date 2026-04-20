@@ -9,4 +9,4 @@ Sevimli Su tətbiqi aşağıdakı məlumatları toplayır:
 
 Bu məlumatlar yalnız tətbiq içində xidmət göstərmək üçün istifadə olunur və üçüncü şəxslərə satılmır.
 
-Əlaqə: sevimlisuapp@gmail.com
+Əlaqə: sevimlisu2026@gmail.com
